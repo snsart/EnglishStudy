@@ -23,50 +23,50 @@ The old man was thin and gaunt with deep wrinkles in the back of his neck. The b
 
 Everything about him was old except his eyes and they were the same color as the sea and were cheerful（令人愉快的） and undefeated.
 
-他身上的一切都显得古老，除了那双眼睛，它们像海水一样蓝，是愉快而不肯认输的。
+* 他身上的一切都显得古老，除了那双眼睛，它们像海水一样蓝，是愉快而不肯认输的。
 
 　　
 “Santiago,“ the boy said to him as they climbed the bank from where the skiff was hauled up. “I could go with you again. We’ve made some money.“
 
-“圣地亚哥，”他们俩从小船停泊的地方爬上岸时，孩子对他说：“我又能陪你一起出海了，我们家赚了点钱。”
+* “圣地亚哥，”他们俩从小船停泊的地方爬上岸时，孩子对他说：“我又能陪你一起出海了，我们家赚了点钱。”
 　　
 The old man had taught the boy to fish and the boy loved him.
 
-老人教会了孩子捕鱼，孩子爱他。
+* 老人教会了孩子捕鱼，孩子爱他。
 　　
 “No,“ the old man said. “You’re with a lucky boat. Stay with them.“
 
-“不”老人说：“你遇上了条幸运的船，你应该跟着他们”
+* “不”老人说：“你遇上了条幸运的船，你应该跟着他们”
 　　
 “But remember how you went eighty-seven days without fish and then we caught big ones every day for three weeks.“
 
-“但是你记得吗？你曾经有连续八十七天钓不到一条鱼，跟着三个礼拜，我们每天都钓到了大鱼。”
+* “但是你记得吗？你曾经有连续八十七天钓不到一条鱼，跟着三个礼拜，我们每天都钓到了大鱼。”
 　　
 “I remember,“ the old man said. “I know you did not leave me because you doubted.“
 　　
-“我记得，”老人说：“我知道你不是因为没把握才离开我的”
+* “我记得，”老人说：“我知道你不是因为没把握才离开我的”
 
 “It was papa made me leave. I am a boy and I must obey him.“
 
-“是爸爸叫我走的。我是个孩子，不能不听从他。”
+* “是爸爸叫我走的。我是个孩子，不能不听从他。”
 　　
 “I know,“ the old man said. “It is quite normal.“
 
-“我知道，”老人说。“这很正常。”
+* “我知道，”老人说。“这很正常。”
 　　
 “He hasn’t much faith.“
 
-“他没有多大的信心。”
+* “他没有多大的信心。”
 　　
 “No,“ the old man said. “But we have. Haven’t we?“
 
-“是啊，”老人说。“可是我们有，不是吗？”
+* “是啊，”老人说。“可是我们有，不是吗？”
 　　
 “Yes,“ the boy said. “Can I offer you a beer on the Terrace（梯田，露天平台，阳台 ） and then we’ll take the stuff（东西、材料） home.“
 
-“是的”小男孩说：“我请你到露台饭店去喝杯啤酒，然后一起把打鱼的家什带回去。”　
+* “是的”小男孩说：“我请你到露台饭店去喝杯啤酒，然后一起把打鱼的家什带回去。”　
 　　
 “Why not?“ the old man said. “Between fishermen.“
 
-“那敢情好，”老人说。“都是打鱼人嘛。”
+* “那敢情好，”老人说。“都是打鱼人嘛。”
 　　
