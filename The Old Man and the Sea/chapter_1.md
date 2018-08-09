@@ -21,7 +21,7 @@ The old man was thin and gaunt with deep wrinkles in the back of his neck. The b
 
 #### 2018.8.9
 
-Everything about him was old except his eyes and they were the same color as the sea and were cheerful（令人愉快的） and undefeated.
+Everything about him was old except his eyes and they were the same color as the sea and were cheerful and undefeated.
 
 他身上的一切都显得古老，除了那双眼睛，它们像海水一样蓝，是愉快而不肯认输的。
 
@@ -61,11 +61,14 @@ The old man had taught the boy to fish and the boy loved him.
 
 “是啊，”老人说。“可是我们有，不是吗？”
 
-“Yes,“ the boy said. “Can I offer you a beer on the Terrace（梯田，露天平台，阳台 ） and then we’ll take the stuff（东西、材料） home.“
+“Yes,“ the boy said. “Can I offer you a beer on the Terrace and then we’ll take the stuff home.“
 
 “是的”小男孩说：“我请你到露台饭店去喝杯啤酒，然后一起把打鱼的家什带回去。”　
 
 “Why not?“ the old man said. “Between fishermen.“
 
 “那敢情好，”老人说。“都是打鱼人嘛。”
+
+> #### 生词表
+> cheerful（令人愉快的）  Terrace（梯田，露天平台，阳台 ） stuff（东西、材料）
 　　
