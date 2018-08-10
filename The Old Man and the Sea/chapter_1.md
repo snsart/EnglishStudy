@@ -71,4 +71,11 @@ The old man had taught the boy to fish and the boy loved him.
 
 > #### 生词表
 > cheerful（令人愉快的）  Terrace（梯田，露天平台，阳台 ） stuff（东西、材料）
+
+#### 2018.8.10
+They sat on the Terrace and many of the fishermen made fun of the old man and he was not angry. Others, of the older fishermen, looked at him and were sad. But they did not show it and they spoke politely（有礼貌地） about the current（现在的，电流，水流） and the depths they had drifted（漂流） their lines at and the steady good weather and of what they had seen. The successful fishermen of that day were already in and had butchered（屠宰的） their marlin out and carried them laid full length across two planks（木板）, with two men staggering（惊人的，蹒跚(stagger的现在分词)） at the end of each plank, to the fish house where they waited for the ice truck（卡车） to carry them to the market in Havana（哈瓦那）. Those who had caught sharks（鲨鱼） had taken them to the shark factory on the other side of the cove（小海湾） where they were hoisted（吊起的） on a block and tackle, their livers（肝脏）removed, their fins（鱼鳍） cut off and their hides skinned（剥皮的） out and their flesh（肉）cut into strips（条状物） for salting（腌制）.
+
+他们坐在露天饭店，许多渔民都拿老人取乐，但是老人一点都不生气。其他老一点的渔民，看着他都会感到难过。但是他们都没有显露出来，只是斯文的谈起海流，谈起他们把钓索送到海面下有多深，天气一贯多好以及他们的见闻。当天打鱼得手的渔夫都已回来，把大马林鱼剖开，整片儿排在两块木板上，每块木板的一端由两个人抬着，摇摇晃晃地送到收鱼站，在哪里等冷藏车来把它们送到哈瓦耶市场。逮到鲨鱼的人把它们送到海湾另一边的鲨鱼加工工厂，吊在复合滑车上，除去肝脏，割去鱼鳍，剥去外皮，把肉切成条状腌制。
+
+> block and tackle（滑轮）
 　　
