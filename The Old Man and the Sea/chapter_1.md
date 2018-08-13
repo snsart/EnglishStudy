@@ -78,4 +78,39 @@ They sat on the Terrace and many of the fishermen made fun of the old man and he
 他们坐在露天饭店，许多渔民都拿老人取乐，但是老人一点都不生气。其他老一点的渔民，看着他都会感到难过。但是他们都没有显露出来，只是斯文的谈起海流，谈起他们把钓索送到海面下有多深，天气一贯多好以及他们的见闻。当天打鱼得手的渔夫都已回来，把大马林鱼剖开，整片儿排在两块木板上，每块木板的一端由两个人抬着，摇摇晃晃地送到收鱼站，在哪里等冷藏车来把它们送到哈瓦耶市场。逮到鲨鱼的人把它们送到海湾另一边的鲨鱼加工工厂，吊在复合滑车上，除去肝脏，割去鱼鳍，剥去外皮，把肉切成条状腌制。
 
 > block and tackle（滑轮）
+> tackle(用具，装备;索具;)
+
+#### 2018.8.13
+
+“Santiago,“ the boy said.
+
+“圣地亚哥，”这个男孩说道。
+
+“Yes,“ the old man said. He was holding his glass and thinking of many years ago.
+
+“是的”老人说。他正握着酒杯思考好多年以前的事。
+
+“Can I go out to get sardines（沙丁鱼） for you for tomorrow?“
+
+“要我去弄点沙丁鱼来给你明天用吗？”
+　　
+“No. Go and play baseball. I can still row（划船，行） and Rogelio will throw the net.“
+
+“不了。去玩棒球吧。我划船还行，罗赫略会给我撒网的。”
+
+“I would like to go. If I cannot fish with you, I would like to serve in some way.“
+
+“我很想去。即使不能陪你钓鱼，我也能为你做点其他的事”
+
+“You bought me a beer,“ the old man said. “You are already a man.“
+　
+“你请我喝了杯啤酒，”老人说。“你已经是个大人了。”　
+
+“How old was I when you first took me in a boat?”
+
+“你头一回带我上船，我有多大？”
+
+“Five and you nearly were killed when I brought the fish in too green（绿色的，青春的） and he nearly tore（撕下）the boat to pieces. Can you remember?”
+
+五岁，那天我把一条鲜龙活跳的鱼拖上船去，它差一点把船撞得粉碎，你也差一点给送了命。还记得吗？”
 　　
