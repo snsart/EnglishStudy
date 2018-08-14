@@ -113,4 +113,55 @@ They sat on the Terrace and many of the fishermen made fun of the old man and he
 “Five and you nearly were killed when I brought the fish in too green（绿色的，青春的） and he nearly tore（撕下）the boat to pieces. Can you remember?”
 
 五岁，那天我把一条鲜龙活跳的鱼拖上船去，它差一点把船撞得粉碎，你也差一点给送了命。还记得吗？”
+
+#### 2018.8.14
+
+“I can remember the tail slapping（拍打） and banging and the thwart（阻挠，独木舟的横梁） breaking and the noise of the clubbing（杵臼）. I can remember you throwing me into the bow（弓;鞠躬;船头） where the wet（潮湿的） coiled lines were and feeling the whole boat shiver（颤抖） and the noise of you clubbing him like chopping（砍;剁） a tree down and the sweet blood smell all over me.“
+
+“我记得鱼尾巴砰砰地拍打着，船上的座板给打断了，还有棍子打鱼的声音。我记得你把我朝船头猛推，那儿搁着湿漉漉的钓索卷儿，我感到整条船在颤抖，听到你啪啪地用棍子打鱼的声音，象有砍一棵树，还记得我浑身上下都是甜丝丝的血腥味儿。”
+　　
+“Can you really remember that or did I just tell it to you?“
+
+“你当真记得那回事儿，还是我不久前刚跟你说过？”
+
+“I remember everything from when we first went together.“
+
+“打从我们头一回一起出海时起，什么事儿我都记得清清楚楚。”
+
+The old man looked at him with his sun-burned（日灼的）, confident（自信的） loving eyes.
+
+老人用他那双常遭日晒而目光坚定的眼睛爱怜地望着他。
+
+“If you were my boy I’d take you out and gamble（赌博）,“ he said. “But you are your father’s and your mother’s and you are in a lucky boat.“
+
+“如果你是我自己的小子，我准会带你出去闯一下，”他说。“可你是你爸爸和你妈妈的小子，你搭的又是一条交上了好运的船。”
+
+“May I get the sardines? I know where I can get four baits（诱饵） too.“
+
+“我去弄沙丁鱼来好吗？我还知道上哪儿去弄四条鱼饵来。”
+
+“I have mine left from today. I put them in salt in the box.“
+
+“我今天还有自个儿剩下的。我把它们放在匣子里腌了。”
+
+“Let me get four fresh ones.“
+
+“让我给你弄四条新鲜的来吧。”
+
+“One,“ the old man said. His hope and his confidence had never gone. But now they were freshening（保鲜） as when the breeze（微风） rises.
+
+“一条，”老人说。他的希望和信心从没消失过。现在可又象微风初起时那么清新了。
+
+“Two,“ the boy said.
+
+“两条，”孩子说。
+
+“Two,“ the old man agreed. “You didn’t steal them?“
+
+“就两条吧，”老人同意了。“你不是去偷的吧？”
+
+“I would,“ the boy said. “But I bought these.“
+
+“我愿意去偷，”孩子说。“不过这些是买来的。”
+
 　　
