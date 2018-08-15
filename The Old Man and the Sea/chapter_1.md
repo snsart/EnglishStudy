@@ -164,4 +164,66 @@ The old man looked at him with his sun-burned（日灼的）, confident（自信
 
 “我愿意去偷，”孩子说。“不过这些是买来的。”
 
+#### 2018.8.15
+
+“Thank you,” the old man said. He was too simple to wonder when he had attained（达到） humility（谦卑）. But he knew he had attained it and he knew it was not disgraceful（可耻的） and it carried no loss of true pride.
+
+“谢谢，”老人说。他心地单纯，不去琢磨什么时候他已经变得如此谦卑。但是他知道他达到了，知道这并不丢脸，所以也无损于真正的自尊心。
+
+“Tomorrow is going to be a good day with this current,“ he said.
+
+“看这海流，明天会是个好天气，”他说。
+
+“Where are you going?“ the boy asked.
+
+“明天你会去哪儿？”男孩问。
+
+“Far out to come in when the wind shifts. I want to be out before it is light.“
+
+“驶向远方，等风转向了再回来，我想在天亮前就出发。”
+
+“I’ll try to get him to work far out,“ the boy said. “Then if you hook something truly big we can come to your aid.“
+
+“我要想法叫船主人也驶向远方，”男孩说。“这样当你确实抓到了大鱼，我们能赶过去帮你。”
+
+“He does not like to work too far out.“
+
+“他不喜欢到很远的地方。”
+
+“No,“ the boy said. “But I will see something that he cannot see such as a bird working and get him to come out after dolphin（海豚）.“
+
+“是啊，”男孩说。“但是我会看到一些他看不见的东西，比如一只小鸟在空中盘旋，我就会叫他赶过去追赶海豚。”
+
+“Are his eyes that bad?“
+
+“他的眼睛这么不行吗？”
+
+“He is almost blind.“
+
+“简直是个瞎子。”
+
+“It is strange,“ the old man said. “He never went turtle-ing（龟鳖）. That is what kills the eyes.“
+
+“这很奇怪，”老人说。“他从没有捕过海豚。这玩意儿才伤眼睛呢。”
+
+“But you went turtle-ing for years off the Mosquito（蚊子） Coast（海岸） and your eyes are good.“
+
+“你可在莫斯基托海岸外捕了好多年海龟，你的眼力还是挺好的嘛。”
+
+“I am a strange old man.“
+
+“我是个不同寻常的老头子。”
+
+“But are you strong enough now for a truly big fish?“
+
+“但是你现在还有力气对付一条真正的大鱼吗？”
+
+“I think so. And there are many tricks（技巧）.“
+
+“我想可以。再说有不少窍门可用呢。”
+
+“Let us take the stuff home,“ the boy said. “So I can get the cast（铸造;投射） net and go after the sardines.“
+
+“让我们把这些家什带回家吧，”男孩说。“这样我就能拿了鱼网去捕沙丁鱼。”
+
 　　
