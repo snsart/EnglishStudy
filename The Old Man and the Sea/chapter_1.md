@@ -226,4 +226,10 @@ The old man looked at him with his sun-burned（日灼的）, confident（自信
 
 “让我们把这些家什带回家吧，”男孩说。“这样我就能拿了鱼网去捕沙丁鱼。”
 
+#### 2018.8.16
+
+They picked up the gear（齿轮） from the boat. The old man carried the mast（桅杆） on his shoulder and the boy carried the wooden box with the coiled, hard-braided（硬编织） brown lines, the gaff and the harpoon with its shaft（轴，给…装上杆柄）. The box with the baits was under the stern（船尾） of the skiff along with（除…以外还） the club（大棒;棍棒） that was used to subdue（征服） the big fish when they were brought alongside. No one would steal from the old man but it was better to take the sail and the heavy lines home as the dew（露水） was bad for them and, though he was quite sure no local people would steal from him, the old man thought that a gaff and a harpoon were needless（不必要的） temptations（诱惑） to leave in a boat.
+
+他们从船上拿起打鱼的家什。老人把桅杆扛在肩上，孩子拿着内放编的很紧的褐色钓索卷的木箱、鱼钩和带杆子的鱼叉。盛鱼饵的匣子给藏在小船的船稍下面，哪儿还有一根在大鱼被拖到岸边时用来制服它们的棍子。谁也不会来偷老人的东西，但是还是把哪些帆和粗钓索带回家去的好，因为露水对这些东西不利，再说，尽管老人确信当地人不会来偷他的东西，但他认为把鱼钩和鱼叉留在船上实在是不必要的引诱。
+
 　　
